@@ -1,0 +1,4 @@
+fridayvictim
+============
+
+Föstudagsfórnarlambið
